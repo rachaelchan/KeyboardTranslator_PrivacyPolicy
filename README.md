@@ -1,0 +1,1 @@
+# KeyboardTranslator_PrivacyPolicy
